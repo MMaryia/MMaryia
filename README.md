@@ -5,5 +5,4 @@ Meu nome é: Maria Madalena de Olivera Santos
 - Estou no: 1B
 - Turno: Manhã
 
-
 !(ursinho) [https://tenor.com/view/swing-grey-cat-white-cat-cute-cat-aww-cat-gif-21443649]
